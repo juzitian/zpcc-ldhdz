@@ -9,7 +9,7 @@
 
 ### 💎 常用访问地址：
 
-🔹 **最新有效地址：** [点击这里访问正品纯粹蓝色导航](https://doufuru50.cc)  
+🔹 **最新有效地址：** [点击这里访问正品纯粹蓝色导航](https://doufuru51.cc)  
 🔹 **最新地址：** [点击这里进入最新地址](https://wangjidizhi.com)  
 🔹 **推荐地址：** [立即体验正品纯粹蓝色导航](https://dizhidaquan.com)  
 🔹 **稳定地址：** [点此访问稳定链接](https://doufuru666.cyou)
